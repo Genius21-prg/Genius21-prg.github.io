@@ -8,3 +8,8 @@ Leung Bik ist der zweite Sohn Leung Jans und der jüngere Bruder von Leung Chun.
 Er kam während der politisch instabilen Zeit der kaiserlichen Qing-Regierung 1644–1912 nach Hongkong, 
 um Geschäfte in der Textilbranche zu machen.
 
+## Standorte
+
+1. Sam Tai Tze-Tempel, Hongkong
+2. Ving Tsun Association, Hongkong
+3. Fo Shan Ving Tsun Club, Hoi Tan Street, Hongkong
