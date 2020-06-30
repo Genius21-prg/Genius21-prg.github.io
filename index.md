@@ -13,3 +13,7 @@ um Geschäfte in der Textilbranche zu machen.
 1. Sam Tai Tze-Tempel, Hongkong
 2. Ving Tsun Association, Hongkong
 3. Fo Shan Ving Tsun Club, Hoi Tan Street, Hongkong
+
+Ip man :
+
+> "Der Mensch besieht sein Spiegelbild nicht im fließenden Wasser,sondern im stillen Wasser. " 
