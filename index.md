@@ -7,3 +7,4 @@ ein Sohn von Chans Lehrer Leung Jan
 Leung Bik ist der zweite Sohn Leung Jans und der jüngere Bruder von Leung Chun.
 Er kam während der politisch instabilen Zeit der kaiserlichen Qing-Regierung 1644–1912 nach Hongkong, 
 um Geschäfte in der Textilbranche zu machen.
+
