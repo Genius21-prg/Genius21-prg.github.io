@@ -16,4 +16,4 @@ um Geschäfte in der Textilbranche zu machen.
 
 Ip man :
 
-> "Der Mensch besieht sein Spiegelbild nicht im fließenden Wasser,sondern im stillen Wasser. " 
+> Der Mensch besieht sein Spiegelbild nicht im fließenden Wasser,sondern im stillen Wasser.
